@@ -1,1 +1,1 @@
-https://zelobin.github.io/cv
+https://zelobin.github.io
