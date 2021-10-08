@@ -1,1 +1,1 @@
-https://zelobin.github.io/zelobin.github.io/
+https://zelobin.github.io/
